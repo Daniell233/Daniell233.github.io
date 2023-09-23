@@ -5,5 +5,5 @@ I'm deniell233 in Littleskin/Mcskin/Miniskin <br>
 I'm fbfff7 in kook <br>
 I'm FreshBigFish/生鲜鱼 in [scratch-cn](https://www.scratch-cn.cn/user/project?comid=62db700de603ce03dc9f01c8 "'v'") <br>
 # hehehehehehe
-[genshin](1235754923-1-192.mp4)
+[genshin](https://daniell233.github.io/1235754923-1-192.mp4)
 :)
